@@ -1,0 +1,2 @@
+# e
+Ihtiyacim var
